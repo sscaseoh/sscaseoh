@@ -3,4 +3,7 @@
 It has` 
 `EVERYTHING`                                                                                                  
 ## 
-## EVERYTHING IN THE REPOSITORY IS ENCODED
+## what is this diddyblud doin on the sscaseoh repository
+## is blud sscaseoh?
+## what is this diddyblud doin on the sscaseoh repository
+## is blud sscaseoh?
