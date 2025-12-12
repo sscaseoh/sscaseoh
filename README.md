@@ -4,4 +4,5 @@
 It has EVERYTHING`                                                                                                  
 unblock 
 ## current websites
-HTTPS://SSCASEOH.VERCEL.APP
+HTTPS://SSCASEOH.VERCEL.APP  
+HTTPS://SSCASEOH.NETLIFY.APP
